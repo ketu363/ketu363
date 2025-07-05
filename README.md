@@ -60,7 +60,7 @@
 ### 📫 How to reach me
 
 - ✉️ Email: **nishantketu363@gmail.com**
-- 🔗 [LinkedIn](https://www.linkedin.com/in/nishant-ketu/)
+- 🔗 [LinkedIn](www.linkedin.com/in/nishant-ketu-388a04152)
 - 🌐 [Portfolio Website](#) (Coming soon...)
 
 ---
